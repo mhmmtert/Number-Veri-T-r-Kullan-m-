@@ -1,0 +1,1 @@
+# Number-Veri-T-r-Kullan-m-
